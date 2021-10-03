@@ -1,0 +1,91 @@
+---
+description: "Recipe of Any-night-of-the-week Ham, Egg &amp;amp; Lettuce Sandwiches"
+title: "Recipe of Any-night-of-the-week Ham, Egg &amp;amp; Lettuce Sandwiches"
+slug: 4395-recipe-of-any-night-of-the-week-ham-egg-and-amp-lettuce-sandwiches
+date: 2021-11-28T11:44:46.613Z
+image: https://img-global.cpcdn.com/recipes/4674615164010496/680x482cq70/ham-egg-lettuce-sandwiches-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/4674615164010496/680x482cq70/ham-egg-lettuce-sandwiches-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/4674615164010496/680x482cq70/ham-egg-lettuce-sandwiches-recipe-main-photo.jpg
+author: Betty Singleton
+ratingvalue: 4.4
+reviewcount: 14560
+recipeingredient:
+- "4 slice Sliced bread"
+- "2 Boiled eggs"
+- "4 pieces Ham"
+- "1 to 2 leaves Lettuce"
+- "2 tbsp Mayonnaise"
+- "1 dash Salt and pepper"
+- "1 dash Mustard"
+- "1 dash Margarine or butter"
+recipeinstructions:
+- "Make boiled eggs. Refer to &#34;How to Boil an Egg&#34;.  https://cookpad.com/us/recipes/146355-creamy-egg-yolks-how-to-soft-and-hard-boil-eggs"
+- "Wash the lettuce and drain. Rip the lettuce leaves in half."
+- "Once the boiled eggs have cooled, peel the shells and finely chop with a knife. Add to a container and mix together with the ingredients marked with ●."
+- "Thinly spread margarine and mustard on the bread. Lay the ham, followed by the lettuce, then the mixture from Step 3."
+- "Place another slice of bread on top and sandwich the contents gently. Cut off the crusts with a bread knife and cut into 3 equal pieces."
+- "Serve on a plate or pack in a lunch box."
+- "If the bread has gone a bit hard, simply wrap it in some damp kitchen paper, then a layer of cling film and leave in the refrigerator for 30 minutes."
+- "If you cut the bread up once it has become more moist, it will result in a great tasting sandwich."
+categories:
+- Recipe
+tags:
+- ham
+- egg
+- 
+
+katakunci: ham egg  
+nutrition: 255 calories
+recipecuisine: American
+preptime: "PT31M"
+cooktime: "PT51M"
+recipeyield: "1"
+recipecategory: Dinner
+
+---
+
+
+![Ham, Egg &amp; Lettuce Sandwiches](https://img-global.cpcdn.com/recipes/4674615164010496/680x482cq70/ham-egg-lettuce-sandwiches-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an amazing day today. Today, I will show you a way to make a distinctive dish, ham, egg &amp; lettuce sandwiches. One of my favorites. This time, I am going to make it a bit unique. This will be really delicious.
+
+Ham, Egg &amp; Lettuce Sandwiches is one of the most favored of recent trending foods in the world. It's easy, it is quick, it tastes yummy. It's enjoyed by millions daily. Ham, Egg &amp; Lettuce Sandwiches is something that I've loved my whole life. They are fine and they look wonderful.
+
+Ham and eggs is a dish combining various preparations of its main ingredients, ham and eggs. It has been described as a staple of &#34;an old-fashioned American breakfast&#34; and of the traditional English breakfast. It is also served as a lunch and dinner dish. I hope you enjoy this Ham and Eggs Recipe!
+
+
+To begin with this particular recipe, we have to first prepare a few ingredients. You can cook ham, egg &amp; lettuce sandwiches using 8 ingredients and 8 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Ham, Egg &amp; Lettuce Sandwiches:
+
+1. Take 4 slice Sliced bread
+1. Get 2 Boiled eggs
+1. Prepare 4 pieces Ham
+1. Prepare 1 to 2 leaves Lettuce
+1. Prepare 2 tbsp ●Mayonnaise
+1. Get 1 dash ●Salt and pepper
+1. Get 1 dash Mustard
+1. Prepare 1 dash Margarine or butter
+
+
+Great for using up leftover Easter or Christmas ham. Drop an egg into a skillet with butter and you get, well, a fried egg. But slip that same egg into a buttered ramekin. The ham is cut into small cubes. 
+
+<!--inarticleads2-->
+
+##### Steps to make Ham, Egg &amp; Lettuce Sandwiches:
+
+1. Make boiled eggs. Refer to &#34;How to Boil an Egg&#34;. -  - https://cookpad.com/us/recipes/146355-creamy-egg-yolks-how-to-soft-and-hard-boil-eggs
+1. Wash the lettuce and drain. Rip the lettuce leaves in half.
+1. Once the boiled eggs have cooled, peel the shells and finely chop with a knife. Add to a container and mix together with the ingredients marked with ●.
+1. Thinly spread margarine and mustard on the bread. Lay the ham, followed by the lettuce, then the mixture from Step 3.
+1. Place another slice of bread on top and sandwich the contents gently. Cut off the crusts with a bread knife and cut into 3 equal pieces.
+1. Serve on a plate or pack in a lunch box.
+1. If the bread has gone a bit hard, simply wrap it in some damp kitchen paper, then a layer of cling film and leave in the refrigerator for 30 minutes.
+1. If you cut the bread up once it has become more moist, it will result in a great tasting sandwich.
+
+
+But slip that same egg into a buttered ramekin. The ham is cut into small cubes. You can also choose to use ready-made bacon, but it tastes better with ham. Now set the heat to the lowest level. Emmy (Metropolis Manga, and possibly other old works. 
+
+So that is going to wrap it up for this special food ham, egg &amp; lettuce sandwiches recipe. Thanks so much for your time. I am sure you can make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
